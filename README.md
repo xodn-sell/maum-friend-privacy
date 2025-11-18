@@ -1,0 +1,1 @@
+# maum-friend-privacy
